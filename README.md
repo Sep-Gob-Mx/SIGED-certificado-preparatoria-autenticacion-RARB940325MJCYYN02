@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-RARB940325MJCYYN02
+RARB940325MJCYYN02
